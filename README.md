@@ -3,7 +3,9 @@
 Update by Karan - 10:08 am 25 Jun
 
 
-1. Karan Kankariya
-2. Jason
-3. Boris 
-4. Reed 
+
+1. Karan Kankariya New York
+2. Jason Xu -Jersey City, NJ
+3. Boris Doosey - Washington, DC
+4. Reed Huston
+
